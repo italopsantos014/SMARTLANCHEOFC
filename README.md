@@ -1,0 +1,2 @@
+# SMARTLANCHEOFC
+solução que facilita
